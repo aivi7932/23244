@@ -27,4 +27,4 @@ FC2投稿精选区：偏向素人投稿，内容真实独特，拥有不少隐�
 
 合法性说明与使用建议
 本页面仅整理网络公开资源站点索引，不储存或传播任何视频内容。请合理使用网络资源，尊重原作者版权。如希望支持女优与制作方，建议访问 FANZA、R18.com、DLsite 等正版平台。
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/23244 ）</span>
